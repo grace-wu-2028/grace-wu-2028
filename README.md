@@ -29,7 +29,7 @@ Leadership and collaboration are central to my approach:
 
 I am eager to pursue opportunities in sustainable investment and quantitative trading development. Long term, I aspire to launch a startup focused on sustainability or animal welfare, leveraging data and innovation for real-world impact.
 
-LinkedIn: [grace-wu-bb3b40214<br>](https://www.linkedin.com/in/grace-wu-bb3b40214/)
+LinkedIn: [grace-wu-bb3b40214<br>](https://www.linkedin.com/in/grace-madison-wu-bb3b40214/)
 YouTube: [@iamgracemadisonwu<br>](https://www.youtube.com/@iamgracemadisonwu)
 Email: gmw2144@columbia.edu
 
