@@ -31,6 +31,6 @@ I am eager to pursue opportunities in sustainable investment and quantitative tr
 
 LinkedIn: [grace-wu-bb3b40214<br>](https://www.linkedin.com/in/grace-madison-wu-bb3b40214/)
 YouTube: [@iamgracemadisonwu<br>](https://www.youtube.com/@iamgracemadisonwu)
-Email: gmw2144@columbia.edu
+Email: grace.madison.wu@columbia.edu
 
 *Fun facts: I hope to have a pet raccoon and a pet pigeon someday!*
